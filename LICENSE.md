@@ -1,4 +1,4 @@
-# 
+# Novo Wave fluxo de trabalho para Mac OS | Leve Wave fluxo de trabalho para PC Windows. Com suporte de auditoria e rastreamento em tempo real — otimizado para máximo desempenho em cada plataforma.
 
 
 
